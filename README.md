@@ -1,6 +1,4 @@
-Meu nome é Caic Mateus, moro em São Paulo - SP.😁
-
-Concluí o curso técnico de Desenvolvimento de Sistemas da Escola SENAI de Informática recentemento e busco oportunidade na área de dev. 👨‍💻
+Meu nome é Caic Freitas, moro em São Paulo - SP.😁
 
 Aprendo rápido e sempre buscando desafios.🎈
 
